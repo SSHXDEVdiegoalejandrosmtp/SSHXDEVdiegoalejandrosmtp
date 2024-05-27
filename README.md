@@ -4,5 +4,13 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me book  ...
 - 😄 Pronouns:    君がいてくれて良かった ...
-- ⚡ Fun fact:   ASAP  ...                                                          ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢲⢄⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+- ⚡ Fun fact:   ASAP  ...
+-
+-
+-
+-![Visitor Count](https://profile-counter.glitch.me/{YOUR USER}/count.svg)
+
+-
+-
+-                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                             ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢲⢄⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀![contributions](https://github.com/SSHXDEVdiegoalejandrosmtp/SSHXDEVdiegoalejandrosmtp/assets/169316076/f2fe0c4c-7320-40da-8b9d-ccd96908dd9b)
